@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on my organization skills.<br>👯 I’m looking to collaborate on mostly anything that will bring in new opportunities or enrich my life.<br>🤝 I’m looking for help with making money, scheduling work, obtaining customers.<br>🌱 I’m currently learning all kinds of ins and outs and developing standards.<br>💬 Ask me about anything you'd like.<br>⚡ Fun fact: I am a nonviolent, extremely accepting person that enjoys the company of people, animals, nature, and goodness.
+🔭 I’m currently working on my organization skills.<br>🤝 I’m looking to collaborate on mostly anything that will bring in new opportunities or enrich my life.<br>👀 I’m looking for help with making money, scheduling work, obtaining customers.<br>🌱 I’m currently learning all kinds of ins and outs and developing standards.<br>💬 Ask me about anything you'd like.<br>🪬 Fun fact: I am a nonviolent, equally accepting person that enjoys the company of people, animals, and nature.
 
 
 ## 🌐 Socials:
